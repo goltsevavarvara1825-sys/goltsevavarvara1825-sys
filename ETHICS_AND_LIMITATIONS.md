@@ -1,0 +1,1 @@
+The main aim is to structure and catalogue this collection for the further creation of a catalogue for galleries, and ultimately for a catalogue raisonné (a comprehensive catalogue of all the artist's works from their entire life, often used to authenticate works and distinguish them from forgeries after the artist's death).
