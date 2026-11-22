@@ -1,4 +1,7 @@
-## Hi there 👋
+ALBRECHT’S COLLECTION is a artworks of artist Sophiia Albrecht.
+Nowadays this body of work not digitized and not described. Whole collection exists of about three hundred items. The collection includes as oil paintings, as graphic works. All works were made in last twenty years. 
+All rights reserved. The use of materials and images without the artist’s permission is prohibited.
+
 
 <!--
 **goltsevavarvara1825-sys/goltsevavarvara1825-sys** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
